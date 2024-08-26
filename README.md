@@ -1,1 +1,1 @@
-Sunucu Patlatma Botu için Çok Gelişmiş 50k mesaj discord hzamzz A yazınız.
+Bu İnanılmaz Gelişmiş Botu Böylece Veremem Altyapısını İsterseniz discord hzamzz ücretsiz
